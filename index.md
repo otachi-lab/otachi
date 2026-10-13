@@ -1,4 +1,0 @@
-# Yota Otachi
-
-(under construction)
-
